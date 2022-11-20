@@ -2,23 +2,19 @@
 
 ### 点击以下链接进入下载页： 
 
-### [88bro.vip](https://88bro.vip)<br> 
+### [emcskr.com](https://emcskr.com)<br> 
  
-### [bbor666.vip](https://bbor666.vip)<br>   
-
-### [bbor666.me](https://bbor666.me)<br>    
+### [whou66.com](https://whou66.com)<br>   
+ 
 
 ### 备用下载页下载链接：
- 
-### [ppii788.vip](https://ppii788.vip)<br> 
-
 
 ### [bber999.me](https://bber999.me)<br> 
 
 ### 易倍体育手机H5浏览地址：
-### [98bro.com](https://98bro.com)<br>  
-### [88bros.com](https://88bros.com)<br> 
-### [bbor666.cc](https://bbor666.cc)<br>
+### [90rro.com](https://90rro.com)<br>  
+### [77bro.com](https://77bro.com)<br> 
+
 
 
 # 易倍体育回家页简介
@@ -37,7 +33,7 @@
 ### 苹果手机出现限制或者无法安装解决办法
 
 一、苹果企业签安装失败解决办法:<br>
-1.苹果企业签安装成功后启动应用时，出现提示“未受新人的企业开发者”，需在依次打开设置-通用-描述文件与设备管理，点击相对应描述文件，再点击按钮信息即可
+1.苹果企业签安装成功后启动应用时，出现提示“未受新人的企业开发者”，需在依次打开设置-通用-描述文件与设备管理，点击相对应描述文件，再点击按钮信息即可<br>
 2.苹果企业签掉签无法打开，通过卸载旧程序重装或者按照以下步骤操作<br>
 第一步，手机开启飞行模式确定4G和wifi都已关闭<br>
 第二步，打开设置里面的 safar浏览器,拉到底下<br>
