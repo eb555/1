@@ -24,7 +24,7 @@
 ## 请收藏保存本网址：[github.com/emc999/1](https://github.com/eb555/1)<br>
 
 
-![avatar](https://github.com/eb555/1/blob/master/AAA.png?raw=true)
+![avatar](https://github.com/eb555/2/blob/main/AAA.png?raw=true)
 
 ### 安卓手机出现限制安装解决办法
  
