@@ -21,7 +21,7 @@
 # 易倍体育回家页简介
 
 ### 分享精彩体育赛事，尽在易倍体育！<br>
-## 请收藏保存本网址：[github.com/emc999/1](https://github.com/eb555/1)<br>
+## 请收藏保存本网址：[github.com/eb555/1](https://github.com/eb555/1)<br>
 
 
 ![avatar](https://github.com/eb555/2/blob/main/AAA.png?raw=true)
