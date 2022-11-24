@@ -5,9 +5,9 @@
 ### 玩游戏拿世界杯球正版球衣！<br>
 ### 世界杯在线竞猜下载页：
 
-### [emcskr.com](https://emcskr.com)<br>
+### [souga456.cc](https://souga456.cc)<br>
 
-### [whou66.com](https://whou66.com)<br>
+### [souga789.com](https://souga789.com)<br>
 
 
 ### 备用下载页下载链接：
@@ -15,8 +15,8 @@
 ### [bber999.me](https://bber999.me)<br>
 
 ### 易倍体育手机竞猜浏览地址：
-### [90rro.com](https://90rro.com)<br>
-### [77bro.com](https://77bro.com)<br>
+### [souga345.com](https://souga345.com)<br>
+### [souga567.com](https://souga567.com)<br>
 
 
 
